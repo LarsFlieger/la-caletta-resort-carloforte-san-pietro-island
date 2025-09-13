@@ -6,9 +6,17 @@
 Interesting links
 - https://gruppodinterventogiuridicoweb.com/2011/07/22/ex-hotel-esit-a-la-caletta-di-carloforte-nascita-di-un-eco-mostro/
 - Google Maps Link: https://maps.app.goo.gl/EdjQ5KYQQaDibrHCA
+- http://orsa2000.it/la_caletta.htm
 
 The "La Caletta" Resort is located in Carloforte on the island of San Pietro. The four-star hotel features 80 rooms, a SPA, garden, and a private cliff area, as well as a beach with exclusive access. Construction is expected to be completed in December 2013, with the public opening in March 2014.
 
+The acquisition of the La Caletta Company by Or.Sa.2000 in 2008 allowed for the continuation of work on a structure that had been in a state of abandonment since the 1980s. In fact, the new hotel is built on the site of an old hotel (the Baia d’Argento), constructed in the 1960s as part of a plan for the touristic promotion of the island and the smaller surrounding islands.
+
+The hotel, which will open in the spring of 2014, will have 80 rooms, all with a sea view, and enjoys a privileged position on the bay of the same name with its sandy dunes. The management of the hotel will be entrusted to a company with extensive experience in the sector and a well-established client portfolio.
+
+The facility will be equipped with all the most modern equipment, with particular attention to the materials and the sustainability of the engineering and design choices, all while respecting the environment, especially concerning the consumption and recovery of water.
+
+The property acquired with the La Caletta company also includes thirty hectares of lush Mediterranean scrubland in an area behind the hotel site. Part of this area used to host a campsite with buildings that are now abandoned, and for its redevelopment, constant discussions are being held with the public administration.
 
 Comune di Carloforte (Municipality of Carloforte)
 Province of Carbonia-Iglesias
